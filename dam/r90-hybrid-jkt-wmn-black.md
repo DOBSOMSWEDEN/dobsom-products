@@ -1,0 +1,18 @@
+# R90 Hybrid Jkt wmn
+
+**Färg:** Black  
+**Pris (RRP):** 1199 SEK  
+**Storlekar:** 34, 36, 38, 40, 42, 44, 46  
+**Kategori:** Cross Country Skiing, XC Apparel, XC Ski Jackets  
+
+## Produkttext
+
+R90 Hybrid jacka den ultimata jackan för väderomslag med vår vindtäta och lättvadderade jacka. Med en framsida och överdel på ärmarna i ett lätt material som skyddar mot vinden samt elastiskt tightsmaterial på baksidan och sidorna för bättre passform och ventilation, har du den perfekta jackan för alla väderförhållanden. Jackan har även praktiska fickor framtill, en huva för extra skydd vid regn samt reflexdetaljer för ökad synlighet i mörkret. Med en dragsko nedtill som hjälper till att hålla värmen inne och en fluorkarbonfri impregnering som är mer hållbar och miljövänlig, är detta den perfekta jackan för alla dina äventyr.
+
+MATERIAL: Yttermaterial 1: 100% Polyester, Yttermaterial 2: 75% Polyester 25% Spandex, Foder: 100% Polyester
+TVÄTTRÅD: Max 40° C, ej kemtvätt, strykning på låg värme, ingen torktumling, inga blek eller sköljmedel, tvättas med liknande färger, tvättas med stängda dragkedjor.
+TILLVERKNINGSLAND: Kina
+
+## Bilder
+
+**Huvudbild:** https://d27ahaa1qqlr90.cloudfront.net/dobsom/Agung-pim/images/upload/2336_111_01.png  
